@@ -6,7 +6,8 @@ eng/viet OK!
 
 i tend to sit around hoyoverse / projectmoon areas in safe & 18+ servers, viet server on occasion
 
-i’ll mostly be afk playing games / drawing but feel free to c+h / whisper2int!!
+i’ll mostly be afk playing games / drawing 
+feel free to c+h / whisper2int!!
 
 byi:
 
