@@ -16,7 +16,8 @@ byi:
 - cuddle as ships OK!! :3
   
 <div align="center">
-  <p>![IMG-9383.gif](https://i.postimg.cc/fWCDJMNB/IMG-9383.gif)](https://postimg.cc/ThKZsMhD)
+  <p> <img width="1280" height="720" alt="lordwu61-1" src="https://github.com/user-attachments/assets/35506ebf-32d1-4b8c-ae2c-4dd90797b0ab" />
+
   no i don’t like wu branch yi sang that much idk what you’re talking about</p>
 </div>
 
