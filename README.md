@@ -1,4 +1,4 @@
-no i don’t like wu branch yi sang that much idk what you’re talking about
+
 
 too lazy to make a strawpage so i’ll introduce myself in here
 🌱
@@ -16,7 +16,7 @@ byi:
 - cuddle as ships OK!! :3
   
 <div align="center">
-  <h1>My Project Title</h1>
-  <p>This is a short description explaining what the project does.</p>
+  <p><img src="https://x.com/kyvnnie_/status/2077173581365256316/photo/1">
+  no i don’t like wu branch yi sang that much idk what you’re talking about</p>
 </div>
 
