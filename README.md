@@ -15,18 +15,3 @@ byi:
 - i can be socially awkward and anxious of how i talk, please understand :”)
 - cuddle as ships OK!! :3
   
-<!DOCTYPE html>
-<html lang="en">
-<head>
-    <style>
-        body {
-            text-align: center; /* Centers all text on the page */
-        }
-    </style>
-</head>
-<body>
-    <h1>This Title is Centered</h1>
-    <p>This paragraph is centered too.</p>
-</body>
-</html>
-
