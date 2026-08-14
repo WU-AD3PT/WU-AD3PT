@@ -10,6 +10,7 @@
   eng/viet OK!<br>i tend to sit around with friends / hoyoverse / projectmoon areas in safe & 18+ servers, viet server sometimes
 
   i’ll mostly be afk playing games / drawing<br>feel free to c+h / whisper2int!!</p>
+  </div>
   
   byi:<br>- preferably 18+, 15-17 are still welcomed :-)<br>- i can be socially awkward and anxious of how i talk, please understand :”)<br>- cuddle as ships OK!! :3
 
