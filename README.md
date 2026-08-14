@@ -1,5 +1,5 @@
 <div align="center">
-  <p> <img width="1280" height="720" alt="lordwu61-1" src="https://github.com/user-attachments/assets/35506ebf-32d1-4b8c-ae2c-4dd90797b0ab" />
+  <p> <img width="853" height="480" alt="lordwu61-1" src="https://github.com/user-attachments/assets/35506ebf-32d1-4b8c-ae2c-4dd90797b0ab" />
 
   no i don’t like wu branch yi sang that much idk what you’re talking about
   
