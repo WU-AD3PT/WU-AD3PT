@@ -16,7 +16,7 @@ byi:
 - cuddle as ships OK!! :3
   
 <div align="center">
-  <p><img src="https://x.com/kyvnnie_/status/2077173581365256316/photo/1">
+  <p><img src="https://x.com/i/status/2077173581365256316">
   no i don’t like wu branch yi sang that much idk what you’re talking about</p>
 </div>
 
