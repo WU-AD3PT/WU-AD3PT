@@ -14,7 +14,7 @@
 
   🌱
 
-  eng/viet OK!<br>i tend to sit around with friends / hoyoverse / projectmoon areas in safe & 18+ servers, viet server sometimes
+  eng/viet OK!<br>i tend to sit or hide around friends / hoyoverse / projectmoon areas in safe & 18+ servers, viet server sometimes
 
   i’ll mostly be afk playing games / drawing<br>feel free to c+h / whisper2int!!</p>
   </div>
